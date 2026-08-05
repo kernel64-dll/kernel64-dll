@@ -17,6 +17,6 @@ Pronouns: She/Her or They/Them
 ## forms of communication
 
 - you can talk to me through:
-- discord: aubs.lat
+- discord: aubree.wtf
 - email (please dont spam me): aubree@korona.lat
-- or join my [**discord server!**](https://discord.aubree.lat)
+- or join my [**discord server!**](https://discord.gg/aubree)
