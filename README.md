@@ -10,7 +10,7 @@ High school nerd that does nothing but break the tech acceptable use policy of e
 I spend most of my free time either hanging out with my gf or bedrotting watching tiktok :3
 
 ## About me
-I'm trans (MtF), pansexual. i have adhd, uhhh and i love my gf <3
+I'm trans (MtF), lesbian. i have adhd, uhhh and i love my gf <3
 Pronouns: She/Her or They/Them
 
 
